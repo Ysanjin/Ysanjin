@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-**Ysanjin** is a ✨Non-Mainstream ✨ 
+**Ysanjin** is a Non-Mainstream 
 
 Here are some ideas to get you started:
 
